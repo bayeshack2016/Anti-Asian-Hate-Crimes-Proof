@@ -7003,6 +7003,6 @@ https://asamnews.com/tag/aaron-vu/
 <td>http://latimesblogs.latimes.com/thedailymirror/2007/06/soldier_kills_w.html</td>
 </tr>
 </tbody></table>
-
+https://www.asian-dawn.com/2021/06/10/black-on-asian-violence-is-280x-more-than-the-other-way-around/
 # ![Coronavirus Reactive Igorance](www.reddit.com/r/aznidentity/comments/fdk6tw/ongoing_list_of_asian_crimes_due_to_corona_virus/)
 # ![Asians Elders Victims of Punk Abuse](https://www.reddit.com/r/aznidentity/comments/fb8b6y/compilation_of_attacks_on_the_elderly)
