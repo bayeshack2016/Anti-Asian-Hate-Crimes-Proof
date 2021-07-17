@@ -1,5 +1,19 @@
 # Anti-Asian-Hate-Crimes-Proof
 Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently..
+# 2021 EMERGENCY CASH RELIEF TRIAGE: DIRECT DONATIONS TO VICTIM FAMILIES
+1. https://www.gofundme.com/f/protect-the-boston-elderly-asian-community
+2. https://www.gofundme.com/f/help-yao-pan-ma?qid=270287b28020c461bcd3ef1a5f882a2c&utm_campaign=p_cp_url&utm_medium=os&utm_source=customer
+3. https://www.gofundme.com/f/stop-the-hate-crime-chak-keung-chan-badly-beaten?utm_campaign=m_pd+share-sheet&utm_medium=copy_link_all&utm_source=customer
+4. https://www.gofundme.com/f/stop-mall-shootings
+5. https://www.gofundme.com/f/2awx9r78pc?utm_campaign=p_nacp+share-sheet&utm_medium=social&utm_source=twitter
+6. https://www.gofundme.com/f/assist-with-marcs-medical-expenses
+7. https://www.gofundme.com/f/maricris-morales-delgado-memorial-family-support
+8. https://www.gofundme.com/f/mingzhi-zhu-family-support-fund-funeral-costs?utm_campaign=p_cp+share-sheet&utm_medium=copy_link_all&utm_source=customer
+9. https://www.gofundme.com/f/GuanShuai?utm_campaign=m_pd+share-sheet&utm_medium=social&utm_source=twitter
+
+
+11. https://www.gofundme.com/f/qd4fh-justice-for-ke-chieh-meng
+
 # https://nextshark.com/asian-businesses-support-donation-looted/
 **2020 news flash update unhelpful racist responses to universal global health pandemic** https://en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_2019%E2%80%9320_coronavirus_pandemic
 
